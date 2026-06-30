@@ -4,4 +4,4 @@ Michael, he him, accepts feminine and androgynous terms too
 
 c+h is fine
 
-i like fnaf, MHA, RE, DT, random roblox games,
+i like fnaf, MHA, RE, DT,
