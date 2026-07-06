@@ -5,3 +5,5 @@ Michael, he him, accepts feminine and androgynous terms too
 c+h is fine
 
 I like FNAF, MHA, DT, and RE
+
+I am a few characters IRL
