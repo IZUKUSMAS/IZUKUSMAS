@@ -6,6 +6,4 @@ c+h is fine
 
 I like FNAF, MHA, DT, and RE
 
-Collective of a few more parts
-
 Michael Afton IRL
