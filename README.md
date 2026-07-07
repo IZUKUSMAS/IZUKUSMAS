@@ -6,4 +6,4 @@ c+h is fine
 
 I like FNAF, MHA, DT, and RE
 
-Collective
+Collective of a few more parts
