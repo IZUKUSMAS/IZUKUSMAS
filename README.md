@@ -1,7 +1,5 @@
 Feel free to interact! I usually have public chat off so whisper me if needed
 
-20+
-
 Michael, he him, accepts feminine and androgynous terms too
 
 c+h is fine
