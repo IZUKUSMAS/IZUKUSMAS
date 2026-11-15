@@ -6,4 +6,4 @@ c+h is fine
 
 I like FNAF, MHA, DT, and RE
 
-INT if you understand healthy boundaries and can communicate!
+INT if you understand healthy boundaries and can communicate if anything's up!
